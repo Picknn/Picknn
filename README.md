@@ -1,5 +1,5 @@
-## Hi there Ø🎃Ø ##
-(ˉ﹃ˉ)
+## Ø🎃Ø ##
+## (ˉ﹃ˉ) ##
 <!--
 **Picknn/Picknn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
